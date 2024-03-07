@@ -1,0 +1,2 @@
+# MY-STAR
+HI,ITS MINE
